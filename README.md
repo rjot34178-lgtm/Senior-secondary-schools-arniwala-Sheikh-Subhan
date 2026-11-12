@@ -1,1 +1,0 @@
-# Senior-secondary-schools-arniwala-Sheikh-Subhan
